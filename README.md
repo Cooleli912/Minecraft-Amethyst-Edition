@@ -1,7 +1,7 @@
 # Minecraft Amethyst Edition
 Minecraft but you want to die.
 
-I'll add the part that makes you want to die very soon.
+you really really will regret using this.
 
 simple minecraft resource pack.
 
